@@ -24,6 +24,10 @@
 
 <img width="405" height="416" alt="Screenshot 2025-07-28 180639" src="https://github.com/user-attachments/assets/d0428985-81f6-44a9-8e21-267bbfef872c" />
 
+## MAIN DNI
+
+   -> zoophiles , tcc ( true crime community ) , zero day ( falls under tcc ) , proshitters , racist , ableist , incest shippers , pepsicola shippers (johnXdave) , pedophiles , LGBTQ+Phobia , maps , jokes about SA , Se%ualizes Minors
+
    ## PONY TOWN INFO.
 
     ╰┈➤ˎˊ˗ C+H IS FINE. 
