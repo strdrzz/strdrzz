@@ -3,6 +3,8 @@
  ╰┈➤ˎˊ˗ D --> dave / psiis / d-strides
  
   ╰┈➤ˎˊ˗ dave strider irl
+
+ ╰┈➤ˎˊ˗ WARNING : SWEDISH , BAD ENGLISH. CET TIMEZONE!!!!!!!
  
  ╰┈➤ˎˊ˗ D --> he / we 
  
