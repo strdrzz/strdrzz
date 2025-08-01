@@ -16,7 +16,7 @@
  
  ╰┈➤ˎˊ˗ D --> please do not flirt with me. 
  
-  ╰┈➤ˎˊ˗ D --> LINKS : https://rentry.co/psiis_ , https://pronouns.cc/@psiis_  , mainly int + dni : https://psiis.straw.page/ , patreon.com/PSIIS_
+  ╰┈➤ˎˊ˗ D --> LINKS : https://rentry.co/psiis_ , https://pronouns.cc/@psiis_  , mainly int + dni : https://psiis.straw.page/
    
    ╰┈➤ˎˊ˗ D --> i am very slow so please forgive me.
   
