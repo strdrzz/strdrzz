@@ -1,48 +1,45 @@
-## D --> main info
+## intro
 
- ╰┈➤ˎˊ˗ D --> dave / psiis / d-strides
- 
-  ╰┈➤ˎˊ˗ dave strider irl
+༘⋆♡⸝⸝🧃⊹。°˖➴ -> dave / d-strides 
 
- ╰┈➤ˎˊ˗ WARNING : SWEDISH , BAD ENGLISH. CET TIMEZONE!!!!!!!
- 
- ╰┈➤ˎˊ˗ D --> he / we 
- 
-╰┈➤ˎˊ˗ D --> HOMESTUCK , SQUID GAMES , RESIDENT EVIL , < -- main 
+༘⋆♡⸝⸝🧃⊹。°˖➴ -> we / he
 
-╰┈➤ˎˊ˗ D -->  ADHD , AUTISM , BIPOLAR , DYSLE%IA , PYSCHOSIS 
+༘⋆♡⸝⸝🧃⊹。°˖➴ -> dave strider irl <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/4f3c0b54-2d33-4958-a37e-10d13a5fb02d" />
 
-╰┈➤ˎˊ˗ D -->  I use diffirent typing quirks so i am sorry.
- 
- ╰┈➤ˎˊ˗ D --> please do not flirt with me. 
- 
-  ╰┈➤ˎˊ˗ D --> LINKS : https://rentry.co/psiis_ , https://pronouns.cc/@psiis_  , mainly int + dni : https://psiis.straw.page/
-   
-   ╰┈➤ˎˊ˗ D --> i am very slow so please forgive me.
-  
-    ╰┈➤ˎˊ˗ D --> i am 100king for a morail!! or a kismesis.
-  
-     ╰┈➤ˎˊ˗ D -->  questioning + greyse%ual.
+༘⋆♡⸝⸝🧃⊹。°˖➴ -> links : https://rentry.co/psiis_ ,  https://pronouns.cc/@psiis_ 
+༘⋆♡⸝⸝🧃⊹。°˖➴ -> int / dni : https://psiis.straw.page/
 
-<img width="405" height="416" alt="Screenshot 2025-07-28 180639" src="https://github.com/user-attachments/assets/d0428985-81f6-44a9-8e21-267bbfef872c" />
+༘⋆♡⸝⸝🧃⊹。°˖➴ -> audhd , bipolar , pyschosis , dyslexia 
 
-## MAIN DNI
+༘⋆♡⸝⸝🧃⊹。°˖➴ -> main int : homestuck , resident evil , squid game
 
-   -> zoophiles , tcc ( true crime community ) , zero day ( falls under tcc ) , proshitters , racist , ableist , incest shippers , pepsicola shippers (johnXdave) , pedophiles , LGBTQ+Phobia , maps , jokes about SA , Se%ualizes Minors
+༘⋆♡⸝⸝🧃⊹。°˖➴ -> **DO NOT INTERACT : PROSHITTERS  ,  INCEST SHIPPERS  , PEPSICOLA(DAVEXJOHN)  ,  RACIST  , ABLEIST  ,  TCC ( TRUEcrimeCOMMUNITY )  ,  ZERO DAY ( FALLS UNDER TCC)**
 
-   ## PONY TOWN INFO.
+༘⋆♡⸝⸝🧃⊹。°˖➴ -> i need a karkat vantas to my dave strider im really rad and i swear i am not annoying 
 
-    ╰┈➤ˎˊ˗ C+H IS FINE. 
+༘⋆♡⸝⸝🧃⊹。°˖➴ -> be my friend im an actual ironic guy and im not a weirdo
 
-     ╰┈➤ˎˊ˗ WHISPER TO INTERACT (W2I) I AM AFK MOST OF THE TIME.
+༘⋆♡⸝⸝🧃⊹。°˖➴ -> bfyi though i do dry type but sometimes i will do emotion in my tone mainly cause of excitement disgust etc you get it
 
-      ╰┈➤ˎˊ˗ MAINLY HOMESTUCK , SQUID GAMES OR RESIDENT EVIL.
+༘⋆♡⸝⸝🧃⊹。°˖➴ -> i have discord don't be afraid to ask yo
 
-      ╰┈➤ˎˊ˗ I HAVE ANXIETY SO BE PAITENT WITH ME. 
+![dave-strider-homestuck](https://github.com/user-attachments/assets/91e36a7d-a41a-4cdf-9012-cadc0b89a983)
 
-       ╰┈➤ˎˊ˗ IF I HAVE YOU ADDED , AND I DON'T INTERACT , I GET VERY NERVOUS OF MEETING PEOPLE SO I DONT TALK MUCH.
 
-        ╰┈➤ˎˊ˗ BMF BTW , I'M SUPER COOL.
+## ponytown rules / info lolol
 
-![leon-kennedy-resident-evil](https://github.com/user-attachments/assets/55f09e06-b2e5-4de9-bf7c-5b85421ad603)
+༘⋆♡⸝⸝💿⊹。°˖➴ -> cuddle + hide (C+H) is fine i dont mind
+
+༘⋆♡⸝⸝💿⊹。°˖➴ ->  whisper to interact (w2i) though i am offtab most of the time
+
+༘⋆♡⸝⸝💿⊹。°˖➴ ->  you can mainly meet me in #safeserver1 or #safeserver2
+
+༘⋆♡⸝⸝💿⊹。°˖➴ -> in safe server 1 you can find me at the homestuck , libary , area down beside trees , or the forsaken area sitting in trees close to homestuck
+
+༘⋆♡⸝⸝💿⊹。°˖➴ ->  in safe server 2 you can find me at a tree beside spawn lol
+
+༘⋆♡⸝⸝💿⊹。°˖➴ ->  mainly dressed as homestuck or anything thats from my hyperfixation or special interest <img width="40" height="40" alt="image" src="https://github.com/user-attachments/assets/bfd1a02c-0798-47d5-bc78-397434484e56" />
+
+
+<img width="316" height="251" alt="davekat-holdinghands-png" src="https://github.com/user-attachments/assets/8150c43f-e936-46b0-858b-8094e12d9027" />
 
