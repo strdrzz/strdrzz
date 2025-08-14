@@ -6,8 +6,9 @@
 
 ༘⋆♡⸝⸝🧃⊹。°˖➴ -> dave strider irl <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/4f3c0b54-2d33-4958-a37e-10d13a5fb02d" />
 
-༘⋆♡⸝⸝🧃⊹。°˖➴ -> links : https://rentry.co/psiis_ ,  https://pronouns.cc/@psiis_ 
-༘⋆♡⸝⸝🧃⊹。°˖➴ -> int / dni : https://psiis.straw.page/
+༘⋆♡⸝⸝🧃⊹。°˖➴ -> links : https://rentry.co/strdrz , https://pronouns.cc/@strdrz
+
+༘⋆♡⸝⸝🧃⊹。°˖➴ -> int / dni : https://strdrz.straw.page/
 
 ༘⋆♡⸝⸝🧃⊹。°˖➴ -> audhd , bipolar , pyschosis , dyslexia 
 
