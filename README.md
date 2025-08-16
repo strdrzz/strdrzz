@@ -6,19 +6,19 @@
 
 ༘⋆♡⸝⸝🧃⊹。°˖➴ -> we / he
 
+༘⋆♡⸝⸝🧃⊹。°˖➴ -> **karkats interact pretty pretty please dude im not annoying**
+
 ༘⋆♡⸝⸝🧃⊹。°˖➴ -> dave strider irl <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/4f3c0b54-2d33-4958-a37e-10d13a5fb02d" />
 
 ༘⋆♡⸝⸝🧃⊹。°˖➴ -> links : https://rentry.co/strdrz , https://pronouns.cc/@strdrz
 
-༘⋆♡⸝⸝🧃⊹。°˖➴ -> int / dni : https://strdrz.straw.page/
+༘⋆♡⸝⸝🧃⊹。°˖➴ -> draw for me yo : https://strdrz.straw.page/
 
 ༘⋆♡⸝⸝🧃⊹。°˖➴ -> audhd , bipolar , pyschosis , dyslexia 
 
 ༘⋆♡⸝⸝🧃⊹。°˖➴ -> main int : homestuck , resident evil , squid game
 
 ༘⋆♡⸝⸝🧃⊹。°˖➴ -> **DO NOT INTERACT : PROSHITTERS  ,  INCEST SHIPPERS  , PEPSICOLA(DAVEXJOHN)  ,  RACIST  , ABLEIST  ,  TCC ( TRUEcrimeCOMMUNITY )  ,  ZERO DAY ( FALLS UNDER TCC)**
-
-༘⋆♡⸝⸝🧃⊹。°˖➴ -> i need a karkat vantas to my dave strider im really rad and i swear i am not annoying 
 
 ༘⋆♡⸝⸝🧃⊹。°˖➴ -> be my friend im an actual ironic guy and im not a weirdo
 
