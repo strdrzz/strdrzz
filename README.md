@@ -2,6 +2,8 @@
 
 ༘⋆♡⸝⸝🧃⊹。°˖➴ -> dave / d-strides 
 
+༘⋆♡⸝⸝🧃⊹。°˖➴ -> swedish / english , im bad at english i mainly use a auto-translator , so if i offend you sorry
+
 ༘⋆♡⸝⸝🧃⊹。°˖➴ -> we / he
 
 ༘⋆♡⸝⸝🧃⊹。°˖➴ -> dave strider irl <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/4f3c0b54-2d33-4958-a37e-10d13a5fb02d" />
