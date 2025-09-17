@@ -4,6 +4,11 @@
 
 : ̗̀➛ dave ,, wilbur ,, 
 
+: ̗̀➛  BMF BMF BMF !! ( BE MY FRIEND) <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/1dd07884-dceb-4b81-86e7-f7b782a30bba" />
+
+
+: ̗̀➛ i joke flirt unless you stated you dislike / dont like being flirted with , also if you do flirt back as a joke , dont take it TOO far aha 
+
 : ̗̀➛ **MAIN DO NOT INTERACT: TRUE CRIME COMMUNITY , ZERO DAY , INCEST SHIPPERS , ABLEIST , HOMESTUCK FANS ARE ON THIN ICE, THOSE GOJO SIMPS.**
 
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/981691f1-ac73-46dc-94f8-992eaab4195f" />
