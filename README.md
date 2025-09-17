@@ -1,65 +1,50 @@
 ## intro
 
-<img width="1378" height="390" alt="image" src="https://github.com/user-attachments/assets/2b9d325d-40af-44e5-b639-5842db1fe80a" />
+<img width="900" height="250" alt="image" src="https://github.com/user-attachments/assets/4052fa81-89ed-43c0-a4bd-b39ad24ce632" />
+
+: ̗̀➛ dave ,, wilbur ,, 
+
+: ̗̀➛ **MAIN DO NOT INTERACT: TRUE CRIME COMMUNITY , ZERO DAY , INCEST SHIPPERS , ABLEIST , HOMESTUCK FANS ARE ON THIN ICE, THOSE GOJO SIMPS.**
+
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/981691f1-ac73-46dc-94f8-992eaab4195f" />
 
 
-𓏫 ུ   dave / wilbur <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/6624225a-d403-441c-b503-667b7609e085" />
+: ̗̀➛ adhd , autism , dyslexic ( slow from it dont get mad at me )
 
-𓏫 ུ    im dave strider irl trust me on this <img width="250" height="33" alt="image" src="https://github.com/user-attachments/assets/d4b9cb8f-ed3d-45d3-8de0-8af9f4bd6031" />
+: ̗̀➛ if you generally get mad at me for liking jjk its an hyperfixation your weird
 
-
-𓏫 ུ   dyslexic , **im also very slow**
-
-𓏫 ུ   SWEDISH / english / french - CET timezone
-
-𓏫 ུ    **MAIN DNI : PROSHITTERS , TCC ( TRUE CRIME COMMUNITY ) , INCEST LIKERS , THOSE HOMESTUCK FANS YOU PMO SO BAD. ROLEPLAYERS ESPICALLY AT THE HOMESTUCK AREA YOUR FUCKING WEIRD.**
-
-𓏫 ུ    i dont bite im actually **ironically** rad 
-
-𓏫 ུ    i do infact have discord (i also play roblox and minecraft )
-
-𓏫 ུ   <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/fc9367a5-31db-4e3e-90d8-7293c0382d46" /> dont be afraid to int unless your on my dni
-
-## links 
-
-𓏫 ུ    draw for me - https://strdrz.straw.page
-
-𓏫 ུ   rentry - https://rentry.co/strdrz
-
-<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/67abfcb7-8712-4d20-8051-b75888fac959" />
+: ̗̀➛ i dont bite im actually really interesting if you get to know me <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/fb67903e-834c-467e-9279-e1742d353286" />
 
 
-## ponytown
+: ̗̀➛  special interest / hyperfixations at the moment : JJK ( jujutsuKaisen) , stardew Valley , Homestuck , cry of fear / afraid of monsters
 
-𓏫 ུ    you may : cuddle + hide (C+H) , whisper 2 interact ( W2I ) and interact 
+<img width="2048" height="874" alt="image" src="https://github.com/user-attachments/assets/87629ead-2c3a-43ef-92f5-ded3095f181a" />
 
-𓏫 ུ    donts : stand infront of me , i will hide you, also dont like come up to me and starting being weird idk man it throws me off
+## LINKS
 
-𓏫 ུ    if i **HID** OR **BLOCKED** YOU. **YOU** ARE THE ISSUE. NOT ME. 
-
-𓏫 ུ   i freely block / mute / hide people so sorry man 
-
-<img width="34" height="34" alt="image" src="https://github.com/user-attachments/assets/0ea5a67a-d23f-4b36-ac50-432dc17d4ea1" />
+: ̗̀➛ https://rentry.co/strdrz <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/8ac61f26-14c1-44e7-869a-3c3160a012a8" />
 
 
-𓏫 ུ    you can find me at -
+: ̗̀➛  draw for me maybeee .... https://strdrz.straw.page
 
-𓏫 ུ    safe #1 : homestuck area , lilbrary , random fandom areas , or trees
+<img width="414" height="603" alt="image" src="https://github.com/user-attachments/assets/121cc9c6-1111-416c-8ee2-46979e6ed3a2" />
 
-𓏫 ུ    safe #2 : tree by spawn 
 
-𓏫 ུ   if im sitting with someone , or a few people you can still come up to me
+<img width="2048" height="874" alt="image" src="https://github.com/user-attachments/assets/d12790a9-031c-4e1d-8376-080da2d23e09" />
 
-𓏫 ུ    dressed as mainly -
+## PONYTOWN 
 
-𓏫 ུ    cry of fear
+: ̗̀➛  cuddle + hide is fine
 
-𓏫 ུ    homestuck
+: ̗̀➛  INT ,, WHISPER 2 INTERACT
 
-𓏫 ུ   ace attorney
+: ̗̀➛ you can sit with me , i really dont mind <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/93d55b67-1f6f-478d-99ce-8345c3f15bb8" />
 
-𓏫 ུ    postal
+: ̗̀➛ normally with my friends , or sitting alone!
 
-𓏫 ུ   a joke skin + more
+: ̗̀➛  safe server #1 : bakery , libary front by the sign , sitting by random trees , VERY RARE : the homestuck area ( ick area its so cringe )
 
-<img width="1378" height="390" alt="image" src="https://github.com/user-attachments/assets/ca65c567-126c-437c-9e7d-db4bc358e1ae" />
+: ̗̀➛  safe server #2 : the tree beside spawn 
+
+<img width="900" height="250" alt="image" src="https://github.com/user-attachments/assets/5f889983-feab-4d5f-80db-125bfc4a3c56" />
+
