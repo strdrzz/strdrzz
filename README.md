@@ -1,55 +1,50 @@
 ## intro
 
-<img width="900" height="250" alt="image" src="https://github.com/user-attachments/assets/4052fa81-89ed-43c0-a4bd-b39ad24ce632" />
-
-: ̗̀➛ dave ,, wilbur ,, 
-
-: ̗̀➛  BMF BMF BMF !! ( BE MY FRIEND) <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/1dd07884-dceb-4b81-86e7-f7b782a30bba" />
+𐔌*ˊᵕˋ*𐦯 -> megumi , dave , wilbur . . .
+<img width="800" height="800" alt="image" src="https://github.com/user-attachments/assets/5ab77cc6-028e-42b0-a2b2-5800c591e73e" />
 
 
-: ̗̀➛ i joke flirt unless you stated you dislike / dont like being flirted with , also if you do flirt back as a joke , dont take it TOO far aha 
+𐔌*ˊᵕˋ*𐦯 -> be my friend. 
 
-: ̗̀➛ **MAIN DO NOT INTERACT: TRUE CRIME COMMUNITY , ZERO DAY , INCEST SHIPPERS , ABLEIST , HOMESTUCK FANS ARE ON THIN ICE, THOSE GOJO SIMPS.**
+𐔌*ˊᵕˋ*𐦯 -> i joke flirt, if you dislike it tell me.
 
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/981691f1-ac73-46dc-94f8-992eaab4195f" />
+𐔌*ˊᵕˋ*𐦯 -> ADHD , AUTISM , DYSLEXIA , EXTREMLY BAD ANXIETY
 
+𐔌*ˊᵕˋ*𐦯 -> I'm slow. wait a minute,
 
-: ̗̀➛ adhd , autism , dyslexic ( slow from it dont get mad at me )
+𐔌*ˊᵕˋ*𐦯 -> JJK is a hyperfixation currently, if you get mad at that you're weird as shit. <img width="68" height="16" alt="image" src="https://github.com/user-attachments/assets/109f938d-8b6b-46a7-bde1-11c67c646cb8" />
 
-: ̗̀➛ if you generally get mad at me for liking jjk its an hyperfixation your weird
+<img width="2029" height="139" alt="image" src="https://github.com/user-attachments/assets/2994f4a4-56b0-4cd8-8fa5-411f1a44e7c0" />
 
-: ̗̀➛ i dont bite im actually really interesting if you get to know me <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/fb67903e-834c-467e-9279-e1742d353286" />
+## DO NOT INTERACT (DNI) , THIN ICE , INT :
 
+ฅ՞•ﻌ•՞ฅ - > DO NOT INTERACT : TCC ( TRUE CRIME COMMUNITY ) , SHIT (ZERO) DAY ( TCC FREAK ) , " i-im not a tcc i just like this!!" ( you're still one freak) , INCEST SHIPPERS , **gojo x megumi ( or yuji / sukuna / toji / ANY minor)** , megumi , yuji , gojo , sukuna (etc) simps , minor likers ick (idc if its an "anime" stay FAR away , your weird.)
 
-: ̗̀➛  special interest / hyperfixations at the moment : JJK ( jujutsuKaisen) , stardew Valley , Homestuck , cry of fear / afraid of monsters
+ฅ՞•ﻌ•՞ฅ -> THIN ICE : homestuck fans ( if you blame the person for blocking YOU , you're weird as hell.) 
 
-<img width="2048" height="874" alt="image" src="https://github.com/user-attachments/assets/87629ead-2c3a-43ef-92f5-ded3095f181a" />
+ฅ՞•ﻌ•՞ฅ -> INT : JJK , STARDEW VALLEY , CRY OF FEAR , AFRAID OF MONSTERS ( more of my int is listed on my rentry )
 
-## LINKS
+<img width="544" height="50" alt="image" src="https://github.com/user-attachments/assets/3c2a324a-89fc-4851-97b8-dfec67af199e" />
 
-: ̗̀➛ https://rentry.co/strdrz <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/8ac61f26-14c1-44e7-869a-3c3160a012a8" />
+## LINKS 
 
+- > https://rentry.co/strdrz : my rentry
+  
+- > https://strdrz.straw.page/ : draw for me maybe...
+  
+  <img width="1500" height="500" alt="image" src="https://github.com/user-attachments/assets/dd702c03-e8d3-439d-9ec2-a228c33ef981" />
+## PONYTOWN
 
-: ̗̀➛  draw for me maybeee .... https://strdrz.straw.page
+૮₍´｡ᵔ ꈊ ᵔ｡`₎ა -> CUDDLE + HIDE ( C+H ) IS FINE.
 
-<img width="414" height="603" alt="image" src="https://github.com/user-attachments/assets/121cc9c6-1111-416c-8ee2-46979e6ed3a2" />
+૮₍´｡ᵔ ꈊ ᵔ｡`₎ა -> WHISPER TO INTERACT ( W2I ) : MOSTLY AFK UNLESS WITH FRIENDS
 
+૮₍´｡ᵔ ꈊ ᵔ｡`₎ა -> you can find me at : SAFE#1 : libary or running around , might be at bakery 
 
-<img width="2048" height="874" alt="image" src="https://github.com/user-attachments/assets/d12790a9-031c-4e1d-8376-080da2d23e09" />
+૮₍´｡ᵔ ꈊ ᵔ｡`₎ა -> SAFE#2 tree near spawn 
 
-## PONYTOWN 
+૮₍´｡ᵔ ꈊ ᵔ｡`₎ა -> mostly dressed as an anime ( JJK , MHA (i am NOT one of those MHA fans , please) DEMON SLAYER , or dressed as a joke skin,  homestuck ( rare case ) , creepypasta ( VV rare )
 
-: ̗̀➛  cuddle + hide is fine
+૮₍´｡ᵔ ꈊ ᵔ｡`₎ა -> dont come up to me and just stand infront of me, I WILL hide you.
 
-: ̗̀➛  INT ,, WHISPER 2 INTERACT
-
-: ̗̀➛ you can sit with me , i really dont mind <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/93d55b67-1f6f-478d-99ce-8345c3f15bb8" />
-
-: ̗̀➛ normally with my friends , or sitting alone!
-
-: ̗̀➛  safe server #1 : bakery , libary front by the sign , sitting by random trees , VERY RARE : the homestuck area ( ick area its so cringe )
-
-: ̗̀➛  safe server #2 : the tree beside spawn 
-
-<img width="900" height="250" alt="image" src="https://github.com/user-attachments/assets/5f889983-feab-4d5f-80db-125bfc4a3c56" />
-
+૮₍´｡ᵔ ꈊ ᵔ｡`₎ა -> i normally sit alone ( watching JJK or busy doing something... ) 
