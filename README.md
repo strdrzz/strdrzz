@@ -28,9 +28,9 @@
 
 ## LINKS 
 
-- > https://rentry.co/strdrz : my rentry
+- > https://rentry.co/mgmii : my rentry.
   
-- > https://strdrz.straw.page/ : draw for me maybe...
+- > https://mgmii.straw.page/ : draw for me.
   
   <img width="1500" height="500" alt="image" src="https://github.com/user-attachments/assets/dd702c03-e8d3-439d-9ec2-a228c33ef981" />
 ## PONYTOWN
