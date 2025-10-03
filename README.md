@@ -28,7 +28,7 @@
 
 ## LINKS 
 
-- > https://rentry.co/mgmii : my rentry.
+- > https://rentry.co/mgmiii : my rentry.
   
 - > https://mgmii.straw.page/ : draw for me.
   
