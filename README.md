@@ -1,6 +1,6 @@
 ## intro
 
-𐔌*ˊᵕˋ*𐦯 -> megumi , dave , wilbur . . .
+𐔌*ˊᵕˋ*𐦯 -> megumi , dave , spencer . . .
 <img width="800" height="800" alt="image" src="https://github.com/user-attachments/assets/5ab77cc6-028e-42b0-a2b2-5800c591e73e" />
 
 
